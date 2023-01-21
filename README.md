@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NikBulatov Begginer programmist 
+- 👋 Hi, I’m @NikBulatov
 - 👀 I’m interested in music
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me anthrowolf@ya.ru or 
